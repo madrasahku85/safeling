@@ -1,0 +1,2 @@
+# safeling
+safelink admin madrasahku
